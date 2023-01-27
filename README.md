@@ -1,2 +1,1 @@
-# references-in-accounting
-Suggested References in Accounting
+#### Please visit the wiki for more info https://github.com/muhamed-hassan/references-in-accounting/wiki
