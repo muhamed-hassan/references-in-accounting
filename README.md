@@ -3,6 +3,13 @@
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/references-in-accounting/wiki
 
 ***
+
+**`Education phase:`** 
+* [Vocational Education level](https://en.wikipedia.org/wiki/Vocational_education) AND
+* [University Education level](https://en.wikipedia.org/wiki/University)
+
+
+***
 ***
 
 ![Money_shutterstock_1706672233](https://user-images.githubusercontent.com/17825804/219616674-9a8729ad-528d-42dd-8fa7-2dd478f66c45.png)
