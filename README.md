@@ -12,8 +12,4 @@
 ***
 ***
 
-![Money_shutterstock_1706672233](https://user-images.githubusercontent.com/17825804/219616674-9a8729ad-528d-42dd-8fa7-2dd478f66c45.png)
-
-***
-
-![78](https://user-images.githubusercontent.com/17825804/219616702-d5e6b908-d42f-4a61-8b60-4de123a74700.png)
+![di0o0ws-4a62b17d-fbc0-4144-b248-fad0ae1d6ee7](https://github.com/user-attachments/assets/fd11c011-36d6-4fcb-87dc-6db1d3fb8977)
